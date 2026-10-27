@@ -1,1 +1,1 @@
-https://github.com/siemonseliaev/ono-tebe-nado
+https://github.com/siemonseliaev/ono-tebe-nado-ad
